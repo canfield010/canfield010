@@ -4,6 +4,33 @@
 - 💞️ I’m looking to collaborate on idk, programing stuff in java
 - 📫 How to reach me canfield010@gannon.edu
 
+    __
+   |@@|⁻||
+    ‘$` ||-_
+        ||  {$?)>
+   <@#)-||
+       | |
+       | |
+       |  |
+       |  |
+       |  |
+ \---——|—-|——---/
+  \            /
+   \   Mango  /
+    \________/
+                 ___________
+   _—-⁻⁻⁻⁻⁻'''’``       ____‘⁻⁻⁻⁻⁻⁻⁻\-__
+|=__                ⁻₋’₋₋₋___´⁻⁻⁻⁻⁻⁻⁻—--‘\
+|   ⁻⁻⁻⁻⁻⁻⁻⁻⁻⁻⁻⁻⁻——————------‘>—.        |
+|                                |       |
+|                                |       |
+|                                |       |
+|               Cheddar          |       |
+|                                |       |
+|                                |       |
+|_                              |      _|
+   ⁻⁻⁻⁻----———__________——----⁻⁻⁻⁻⁻⁻⁻``
+
 <!---
 canfield010/canfield010 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 You can click the Preview link to take a look at your changes.
